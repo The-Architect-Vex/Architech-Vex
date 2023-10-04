@@ -1,5 +1,5 @@
 # 💫 About Me:
-ɢᴇɴᴅᴇʀ: Male<br>ᴘʀᴏɴᴏᴜɴꜱ: He/Him<br>Age: 26<br>ʟiᴋᴇꜱ: Programming, Lore = i make templates on anything lore related, when im not working.<br>Info:<br>I'm semi Freelanced.<br>I specialize in OSINT & SOCMINT.<br>Open Source Intelligence.<br>Social Media Intelligence.<br>14yrs Self Taught.
+ɢᴇɴᴅᴇʀ: Male<br>ᴘʀᴏɴᴏᴜɴꜱ: He/Him<br>Age: 26<br>ʟiᴋᴇꜱ: Programming, Lore = i make templates on anything lore related, when im not working.<br>Info:<br>I'm semi Freelanced.<br>I specialize in OSINT & SOCMINT.<br>Open Source Intelligence.<br>Social Media Intelligence.<br>10yrs Self Taught.
 
 
 ## 🌐 Socials:
